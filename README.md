@@ -1,1 +1,0 @@
-# karqeeZ.github.io
